@@ -1,2 +1,0 @@
-# akshay-yadav
-graphic designer
